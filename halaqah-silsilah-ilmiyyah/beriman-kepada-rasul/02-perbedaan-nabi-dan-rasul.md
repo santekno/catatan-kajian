@@ -7,11 +7,13 @@ Dalil-dalil menunjukkan adanya perbedaan antara Nabi dan Rasul.&#x20;
 Allah ﷻ berfirman:
 
 {% hint style="info" %}
+****[**Surat Al-Hajj : 52**](https://appngaji.com/al-hajj/ayat-52/)****
+
 وَمَا أَرْسَلْنَا مِن قَبْلِكَ مِن رَّسُولٍ وَلَا نَبِيٍّ إِلَّا إِذَا تَمَنَّىٰ أَلْقَى الشَّيْطَانُ فِي أُمْنِيَّتِهِ فَيَنسَخُ اللَّهُ مَا يُلْقِي الشَّيْطَانُ ثُمَّ يُحْكِمُ اللَّهُ آيَاتِهِ ۗ وَاللَّهُ عَلِيمٌ حَكِيمٌ
 
 _Wa maaa arsalnaa min qablika mir Rasoolinnw wa laa Nabiyyin illaaa izaaa tamannaaa alqash Shaitaanu feee umniy yatihee fa yansakhul laahu maa yulqish Shaitaanu summa yuhkimul laahu aayaatih; wallaahu 'Aleemun Hakeem_
 
-Dan Kami tidak mengutus seorang rasul dan tidak (pula) seorang nabi sebelum engkau (Muhammad), mela-inkan apabila dia mempunyai suatu keinginan, setan pun memasukkan godaan-godaan ke dalam keinginannya itu. Tetapi Allah menghilangkan apa yang dimasukkan setan itu, dan Allah akan menguatkan ayat-ayat-Nya. Dan Allah Maha Mengetahui, Mahabijaksana [(Surat Al-Hajj : 52)](https://appngaji.com/al-hajj/ayat-52/)
+Dan Kami tidak mengutus seorang rasul dan tidak (pula) seorang nabi sebelum engkau (Muhammad), mela-inkan apabila dia mempunyai suatu keinginan, setan pun memasukkan godaan-godaan ke dalam keinginannya itu. Tetapi Allah menghilangkan apa yang dimasukkan setan itu, dan Allah akan menguatkan ayat-ayat-Nya. Dan Allah Maha Mengetahui, Mahabijaksana
 {% endhint %}
 
 Ayat diatas menunjukkan bahwa Rasul **berbeda** dengan Nabi.
