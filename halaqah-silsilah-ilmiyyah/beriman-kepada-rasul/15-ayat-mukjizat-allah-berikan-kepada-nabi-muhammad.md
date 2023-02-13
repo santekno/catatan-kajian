@@ -34,7 +34,7 @@ Dua perjalanan yang jauh yang dilakukan dalam waktu yang sangat singkat menunjuk
 
 ### Membelah Bulan&#x20;
 
-Allah سُبْحَانَهُ وَ تَعَالَى berfirman
+Allah ﷻ berfirman
 
 {% hint style="info" %}
 ****[**Surat Al-Qamar : 1-2**](https://appngaji.com/al-qamar/)****
