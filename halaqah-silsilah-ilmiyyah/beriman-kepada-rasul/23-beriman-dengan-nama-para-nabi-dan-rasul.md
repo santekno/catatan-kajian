@@ -1,5 +1,8 @@
 # 23 - Beriman Dengan Nama Para Nabi dan Rasul
 
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
+
 Beriman dengan nama-nama para nabi dan rasul yang Allah telah sebutkan namanya didalam Alquran mereka berjumlah **25 orang**, **18** Diantaranya disebutkan berturut-turut didalam **surat Al An’am** dan 7 orang berpisah-pisah didalam surat -surat yang lain.
 
 18 nama didalam surat **Al An’am** adalah

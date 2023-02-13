@@ -1,4 +1,7 @@
-# 20 - Perbedaan Al-Mujizat dengan Al-Karamah
+# 20 - Perbedaan Al-Mujizat dan Al-Karamah
+
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
 
 Disana ada perbedaan antara Al-Mu’jizah dengan Al-Karamah
 

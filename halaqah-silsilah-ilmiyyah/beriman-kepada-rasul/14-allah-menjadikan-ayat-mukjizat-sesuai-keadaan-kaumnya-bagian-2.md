@@ -1,5 +1,8 @@
 # 14 - Allah ﷻ Menjadikan Ayat / Mukjizat Sesuai Keadaan Kaumnya Bagian 2
 
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
+
 ### Mukjizah Nabi Muhammad ﷺ yang berupa Al-Quran
 
 Di zaman beliau, ﷺ bahasa **Arab** mencapai zaman keemasan, penyair penyair-penyair bertebaran, berlomba menyumbangkan kefasehannya dan kedalamannya didalam berbahasa.

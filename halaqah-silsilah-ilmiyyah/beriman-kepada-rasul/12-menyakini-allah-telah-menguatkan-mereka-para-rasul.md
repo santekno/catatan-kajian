@@ -1,5 +1,8 @@
 # 12 - Menyakini Allah ﷻ telah Menguatkan Mereka (Para Rasul)
 
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
+
 Keyakinan bahwa Allah ﷻ telah menguatkan mereka dengan tanda-tanda kekuasaan-Nya sebagai pembenaran terhadap kenabian mereka. tanda-tanda kekuasaan ini telah tersebar dikalangan kaum muslimin dengan nama **Mukjizat**.
 
 **Al Mu’jizat** adalah jamak dari **Al Mu’jizah**, yang secara bahasa artinya adalah _yang melemahkan orang lain sehingga tidak bisa mendatangkan yang semisalnya._

@@ -1,5 +1,8 @@
 # 24 - Beberapa Persamaan antara Nabi dan Rasul
 
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
+
 Diantara cara beriman kepada para rasul alayhimussalam adalah mengetahui beberapa persamaan antara Nabi dan Rasul. Mereka semua adalah manusia **Laki-laki** dan **Merdeka.**
 
 ### Bukan Kalangan Jin dan Malaikat

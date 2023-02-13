@@ -1,5 +1,8 @@
 # 06 - Meyakini Para Rasul Terjaga dari Dosa Besar
 
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
+
 Meyakini bahwa mereka **ma’sum** yaitu terjaga dari dosa besar seperti: _zina, mencuri, menipu, sihir, membuat berhala, dan lain lain_.
 
 Ini adalah **kesepakatan umat**, adapun orang **Yahudi** dan **Nashrani** mereka menganggap para Nabi dan Rasul melakukan **Dosa besar**, seperti keyakinan bahwa:

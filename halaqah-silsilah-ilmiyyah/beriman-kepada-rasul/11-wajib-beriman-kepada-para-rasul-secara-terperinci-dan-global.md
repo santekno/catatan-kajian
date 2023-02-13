@@ -1,5 +1,8 @@
 # 11 - Wajib Beriman kepada Para Rasul secara terperinci dan Global
 
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
+
 Iman yang **terperinci** maksudnya adalah _beriman dengan nama-nama, kabar-kabar, kisah-kisah para Nabi yang datang didalam Al-Quran dan Sunnah yang shahihah_.
 
 Adapun iman **secara global** maka yang dimaksud adalah _beriman bahwa Allah memiliki Nabi-nabi dan Rasul-rasul selain yang disebut namanya didalam Al-Quran dan Al-Hadits_.

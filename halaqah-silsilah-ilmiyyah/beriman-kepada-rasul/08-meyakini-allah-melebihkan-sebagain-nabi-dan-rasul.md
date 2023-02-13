@@ -1,5 +1,8 @@
 # 08 - Meyakini Allah ﷻ Melebihkan Sebagain Nabi dan Rasul
 
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
+
 Diantara cara beriman dengan para Rasul ‘alaihimussalam adalah keyakinan bahwa Allah melebihkan sebagian Nabi dan Rasul diatas sebagian yang lain tanpa merendahkan dan melecehkan harga diri dan kedudukan yang lain.
 
 Allah ﷻ berfirman:

@@ -1,5 +1,8 @@
 # 10 - Meyakini Allah ﷻ telah Memberikan Keistimewaan bagi Para Nabi dan Rasul
 
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
+
 Diantara cara beriman kepada para adalah keyakinan yang mendalam bahwasanya Allah telah memberikan beberapa keistimewaan bagi para Nabi dan Rasul. Diantara keistimewaan itu adalah:
 
 #### 1. Wahyu

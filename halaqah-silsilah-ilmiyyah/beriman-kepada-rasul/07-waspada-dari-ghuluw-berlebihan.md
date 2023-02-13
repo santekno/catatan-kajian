@@ -1,5 +1,8 @@
 # 07 - Waspada dari Ghuluw (berlebihan)
 
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
+
 Waspada dari **ghuluw (berlebihan)** terhadap para Rasul alaihimussalam, seperti menganggap beliau mengetahui **yang ghaib** atau mensifati beliau dengan **sifat-sifat ketuhanan** dan Allah ﷻ melarang Ahlu kitab dari sikap ghuluw dengan firman-Nya yaitu:
 
 {% hint style="info" %}

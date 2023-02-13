@@ -1,5 +1,8 @@
 # 21 - Perbedaan Al-Karamah dan Al-Ahwal Asy-Syaithaniyyah Bagian 1
 
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
+
 Perbedaan **Al-Karamah** dan **Al-Ahwal Asy-Syaithaniyyah**, karena sering terjadi seseorang menganggap **Al-Ahwal Asy-Syaithaniyyah** sebagai **Al-Karamah**, menganggap seorang wali syaithan sebagai **wali Allah**.
 
 Berikut adalah perbedaan antara Al-Karamah dan Al-Ahwal Asy-Syaithaniyyah (semoga Allah ﷻ memberikan taufiq kepada kita semua dan menerangi diri kita dengan ilmu agama, diantara perbedaan antara Al-Karamah dan Al-Ahwal Asy-Syaithaniyyah.

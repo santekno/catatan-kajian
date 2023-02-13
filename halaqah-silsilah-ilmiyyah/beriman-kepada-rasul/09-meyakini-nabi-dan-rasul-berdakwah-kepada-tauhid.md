@@ -1,5 +1,8 @@
 # 09 - Meyakini Nabi dan Rasul Berdakwah kepada Tauhid
 
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
+
 Diantara cara beriman dengan para Rasul adalah keyakinan yang kuat bahwa seluruh Nabi dan Rasul  عَلَيهِ السَّلَامُ telah bersepakat dalam berdakwah kepada **Tauhid** dan mengingatkan umat mereka dari **kesyirikan**.
 
 Allah ﷻ berfirman

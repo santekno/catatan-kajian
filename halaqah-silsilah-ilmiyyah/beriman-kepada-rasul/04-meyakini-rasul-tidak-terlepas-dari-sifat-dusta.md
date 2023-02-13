@@ -1,5 +1,8 @@
 # 04 - Meyakini Rasul Tidak terlepas dari Sifat Dusta
 
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
+
 Diantara cara beriman dengan para Rasul:
 
 ### 3. Meyakini Bahwa Para Rasul terlepas dari Sifat Dusta

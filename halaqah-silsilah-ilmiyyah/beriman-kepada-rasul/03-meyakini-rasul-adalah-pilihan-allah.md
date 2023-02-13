@@ -1,5 +1,8 @@
 # 03 - Meyakini Rasul adalah Pilihan Allah
 
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
+
 Cara Beriman kepada para Rasul Allah mengandung beberapa perkara:
 
 ### 1. Keyakinan Rasul adalah Pilihan Allah

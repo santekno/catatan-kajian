@@ -1,5 +1,8 @@
 # 13 - Allah ﷻ Menjadikan Ayat / Mukjizat Sesuai Keadaan Kaumnya Bagian 1
 
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
+
 Diantara hikmah Allah menjadikan ayat-ayat seorang Nabi / mukjizat mereka adalah sesuatu yang sesuai dengan keadaan kaumnya dan lebih dahsyat supaya lebih menunjukkan kebenaran kenabian Nabi tersebut. Diantara contohnya yaitu
 
 ### Kaum Nabi Sholeh (Kaum Tsamud)

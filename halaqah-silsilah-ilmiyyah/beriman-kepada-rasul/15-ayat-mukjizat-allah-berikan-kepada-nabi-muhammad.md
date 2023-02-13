@@ -1,5 +1,8 @@
 # 15 - Ayat / Mukjizat Allah Berikan Kepada Nabi Muhammad ﷺ
 
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
+
 Ayat-ayat yang Allah berikan kepada Nabi Muhammad ﷺ sangat banyak. Hal ini menunjukkan keutamaan beliau disisi Allah menunjukkan betapa pentingnya risalah yang beliau bawa karena risalah beliau adalah **risalah yang terakhir** dan **tidak ada lagi risalah setelah risalah beliau ﷺ.**
 
 Dan diantara ayat-ayat atau mukjizat-mu’jizat tersebut adalah

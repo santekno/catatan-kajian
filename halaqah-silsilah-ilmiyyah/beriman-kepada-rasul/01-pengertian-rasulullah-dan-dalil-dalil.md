@@ -1,8 +1,7 @@
 # 01 - Pengertian Rasulullah Dan Dalil-Dalil
 
-| Pemateri                                    | Materi                   |
-| ------------------------------------------- | ------------------------ |
-| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | **Beriman Kepada Rasul** |
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
 
 Diantara pokok-pokok keimanan yang harus di imani oleh seorang hamba adalah beriman kepada para Rasul Allah.
 

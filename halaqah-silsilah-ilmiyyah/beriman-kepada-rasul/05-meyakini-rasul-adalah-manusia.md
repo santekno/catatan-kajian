@@ -1,5 +1,8 @@
 # 05 - Meyakini Rasul adalah Manusia
 
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
+
 Meyakini dengan keyakinan yang dalam bahwa mereka (Para Rasul) adalah **manusia**. Menimpa mereka apa yang menimpa manusia yang lain, mereka makan, minum, mencari rezeki, menikah, memiliki keturunan, tertimpa sakit, terbunuh, meninggal dan lain-lain,
 
 Allah ﷻ berfirman:

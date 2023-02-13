@@ -1,5 +1,8 @@
 # 25 - Buah Beriman kepada Para Rasul
 
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
+
 Diantara Buah Beriman kepada Para Rasul ‘alayhimussalam
 
 1.  Seseorang jadi **mengetahui rahmat Allah** dan perhatian Allah yang besar terhadap hamba-hambaNya dengan cara mengutus para Rasul kepada mereka supaya **memberikan** **petunjuk** kepada mereka dan menjelaskan kepada mereka tentang beribadah kepada Allah dan bagaimana cara beribadah kepada Allah, karena akal manusia tidak bisa berdiri sendiri tanpa wahyu dari Allah ﷻ

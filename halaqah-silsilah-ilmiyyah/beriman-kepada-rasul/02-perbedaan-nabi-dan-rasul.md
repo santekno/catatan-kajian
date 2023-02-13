@@ -1,5 +1,8 @@
 # 02 - Perbedaan Nabi dan Rasul
 
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
+
 ### Dalil-dalil Perbedaan
 
 Dalil-dalil menunjukkan adanya perbedaan antara Nabi dan Rasul.&#x20;

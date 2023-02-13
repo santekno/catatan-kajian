@@ -1,5 +1,8 @@
 # 17 - Meyakini Al-Karamah Termasuk Pokok Aqidah
 
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
+
 Meyakini adanya Al-Karamah adalah termasuk **pokok aqidah Ahlus Sunnah Wal Jamaah**.
 
 Berkata **Syaikhul Islam rahimahullah** didalam kitab beliau

@@ -1,5 +1,8 @@
 # 16 - Beriman dengan Al-Karamah
 
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
+
 Diantara perkara Aqidah yang berkaitan dengan Al-Mu’jizat adalah beriman dengan **Al-Karamah.**
 
 **Al Karamah** secara bahasa adalah **pemberian**, ada pun secara syariat adalah sebuah perkara diluar kebiasaan yang terjadi pada seorang wali Allah.

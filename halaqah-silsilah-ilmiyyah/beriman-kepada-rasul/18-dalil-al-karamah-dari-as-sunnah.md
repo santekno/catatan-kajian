@@ -1,5 +1,8 @@
 # 18 - Dalil Al-Karamah dari As-Sunnah
 
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
+
 Diantara dalil dari As-Sunnah atas adanya Al-Karamah
 
 ### Kisah Abu Bakar Asy Sidiq

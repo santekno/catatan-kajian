@@ -1,5 +1,8 @@
 # 22 - Perbedaan Al-Karamah dan Al-Ahwal Asy-Syaithaniyyah Bagian 2
 
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
+
 ### Al-Karamah Menambah Keimanan
 
 Al Karamah menambah **keimanan, ketakwaan dan kerendahan hati pada pemiliknya**, sedangkan Al-Ahwal Asy-Syaithaniyyah menambah **kekufuran** dan **kejauhan dari Allah  ﷻ**.

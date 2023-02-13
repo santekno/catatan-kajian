@@ -1,4 +1,7 @@
-# 19 Mengenal Al Ahwal Asy-syaithaniyyah
+# 19 - Mengenal Al Ahwal Asy-syaithaniyyah
+
+| Ustadz Dr. Abdullah Roy, M.A حفظه لله تعالى | ****[**Beriman Kepada Rasul**](./)**** |
+| ------------------------------------------- | -------------------------------------- |
 
 Setelah kita mengetahui tentang Al-Karamah yang Allāh berikan kepada wali-Nya, maka hendaklah kita mengenal tentang **Al Ahwal Asy-syaithaniyyah** (keadaan-syaithan-syaitan).
 
