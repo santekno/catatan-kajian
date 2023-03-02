@@ -38,3 +38,5 @@
   * [23 - Beriman Dengan Nama Para Nabi dan Rasul](halaqah-silsilah-ilmiyyah/beriman-kepada-rasul/23-beriman-dengan-nama-para-nabi-dan-rasul.md)
   * [24 - Beberapa Persamaan antara Nabi dan Rasul](halaqah-silsilah-ilmiyyah/beriman-kepada-rasul/24-beberapa-persamaan-antara-nabi-dan-rasul.md)
   * [25 - Buah Beriman kepada Para Rasul](halaqah-silsilah-ilmiyyah/beriman-kepada-rasul/25-buah-beriman-kepada-para-rasul.md)
+* [📖 Beriman Kepada Takdir Allah ﷻ](halaqah-silsilah-ilmiyyah/beriman-kepada-takdir-allah/README.md)
+  * [01 - Pengertian Al Qadha Dan Al Qadar](halaqah-silsilah-ilmiyyah/beriman-kepada-takdir-allah/01-pengertian-al-qadha-dan-al-qadar.md)
